@@ -1,4 +1,4 @@
-# 🦅About Me :
+# 🦅Hello Mate💨
 im still learning some programming language,so hehe:v
 
 ## 🌐Socials
