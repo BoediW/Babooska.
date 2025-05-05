@@ -1,5 +1,4 @@
-# Babooska.
-# 💫About Me :
+# 🦅About Me :
 im still learning some programming language,so hehe:v
 
 ## 🌐Socials
